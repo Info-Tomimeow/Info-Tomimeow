@@ -1,4 +1,3 @@
-### PT Info ^_^
 <img width="450" height="500" alt="kyojuroandgiyuu.png" src="https://github.com/user-attachments/assets/3059fd36-aadf-4c58-8350-75025b937ffd" /> 
 
 ![waves-pixel](https://github.com/user-attachments/assets/6da5591d-8a28-43c2-bdb9-2941cc05ac16)  Dion / Whatever is the name of the character of my skin if you know them<br/>
