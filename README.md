@@ -12,3 +12,7 @@ or I don't reply at all. Please be patient with me<br/>
 ![waves-pixel](https://github.com/user-attachments/assets/6da5591d-8a28-43c2-bdb9-2941cc05ac16) My skins are my kins ( IDs ) but I also roleplay<br/>
 ![waves-pixel](https://github.com/user-attachments/assets/6da5591d-8a28-43c2-bdb9-2941cc05ac16) I'm very unfamiliar with PT terms and such,, I'm a noob 
 who's been playing for nearly 5 years,,,<br/>
+
+***Where am I usually at?***<br/>
+<img width="207" height="192" alt="スクリーンショット 2025-09-04 212027" src="https://github.com/user-attachments/assets/33b0a065-6ad4-418b-91ba-0ced532a0296" />
+The bakery, if I'm not here I'm somewhere at the area above there or at the beach (:
