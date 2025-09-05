@@ -6,7 +6,7 @@ minor but I'm above 13 I swear orz<br/>
 ![waves-pixel](https://github.com/user-attachments/assets/6da5591d-8a28-43c2-bdb9-2941cc05ac16) I wander around sometimes, feel free to int (boop if 🟢 , whisper if 🌙/🔴)
  if you recognise any of my skins<br/>
 ![waves-pixel](https://github.com/user-attachments/assets/6da5591d-8a28-43c2-bdb9-2941cc05ac16) Feel free to int/C+H whenever too<br/>
-![waves-pixel](https://github.com/user-attachments/assets/6da5591d-8a28-43c2-bdb9-2941cc05ac16) I have trouble with socialising so my replies will be slow most of the time, 
+![waves-pixel](https://github.com/user-attachments/assets/6da5591d-8a28-43c2-bdb9-2941cc05ac16) I have trouble with socialising so my replies will be slow + dry most of the time, 
 or I don't reply at all. Please be patient with me<br/>
 ![waves-pixel](https://github.com/user-attachments/assets/6da5591d-8a28-43c2-bdb9-2941cc05ac16) I really like to make friends though (:<br/>
 ![waves-pixel](https://github.com/user-attachments/assets/6da5591d-8a28-43c2-bdb9-2941cc05ac16) My skins are my kins ( IDs ) but I also roleplay<br/>
