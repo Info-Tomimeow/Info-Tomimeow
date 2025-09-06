@@ -9,6 +9,7 @@ minor but I'm above 13 I swear orz<br/>
 ![waves-pixel](https://github.com/user-attachments/assets/6da5591d-8a28-43c2-bdb9-2941cc05ac16) I have trouble with socialising so my replies will be slow + dry most of the time, 
 or I don't reply at all. Please be patient with me<br/>
 ![waves-pixel](https://github.com/user-attachments/assets/6da5591d-8a28-43c2-bdb9-2941cc05ac16) I really like to make friends though (:<br/>
+![waves-pixel](https://github.com/user-attachments/assets/6da5591d-8a28-43c2-bdb9-2941cc05ac16) I reject friend requests if we haven't int before, sorry<br/>
 ![waves-pixel](https://github.com/user-attachments/assets/6da5591d-8a28-43c2-bdb9-2941cc05ac16) My skins are my kins ( IDs ) but I also roleplay<br/>
 ![waves-pixel](https://github.com/user-attachments/assets/6da5591d-8a28-43c2-bdb9-2941cc05ac16) I'm very unfamiliar with PT terms and such,, I'm a noob 
 who's been playing for nearly 5 years,,,<br/>
