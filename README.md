@@ -18,4 +18,4 @@ who's been playing for nearly 5 years,,,<br/>
 <img width="207" height="192" alt="スクリーンショット 2025-09-04 212027" src="https://github.com/user-attachments/assets/33b0a065-6ad4-418b-91ba-0ced532a0296" />
 The market, if I'm not there I'm somewhere at the area below there or at the beach, or I'm offline (:<br>
 
-\*I only ship QPR KyoGiyu and maybe QPR SabiGiyu
+\*I only ship QPR KyoGiyu and maybe QPR SabiGiyu ( Past / AU )
